@@ -58,5 +58,3 @@ Want to contribute? Follow these steps:
 📧 **Email:** rajkiranraj0000@gmail.com  
 
 ---
-
-This is now **clean, simple, and includes only your contact details**. Let me know if you need any further edits! 🚀🔥
